@@ -8,8 +8,8 @@ I enjoy solving complex problems, writing clean code, and continuously learning 
 
 
 ## 📫 Connect With Me
-- 💼 [LinkedIn](https://linkedin.com/in/YOUR_LINKEDIN)  
-- 📧 Email: your.email@example.com  
+- 💼 [LinkedIn](https://www.linkedin.com/in/digvijay-jadhav-bb2036219?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)  
+- 📧 Email:digvijayjadhav1706@gmail.com  
 
 ---
 ⭐️ From [Digvijay Jadhav](https://github.com/Digvijay176)
